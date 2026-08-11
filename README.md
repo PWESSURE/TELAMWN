@@ -1,7 +1,7 @@
 # WEBGFX COLLECTION OF MY PAPA! 
 
-<img width="250" height="160" align="left" alt="0" src="https://github.com/user-attachments/assets/8ee6deee-fd56-4491-b94e-8f4e8f0693b0" />
-<img width="250" height="160" align="right" alt="0" src="https://github.com/user-attachments/assets/18e17ba4-3056-448f-ad2e-c8eefaabf912" />
+<img width="250" height="200" align="left" alt="0" src="https://github.com/user-attachments/assets/8ee6deee-fd56-4491-b94e-8f4e8f0693b0" />
+<img width="250" height="200" align="right" alt="0" src="https://github.com/user-attachments/assets/18e17ba4-3056-448f-ad2e-c8eefaabf912" />
 
   <table>
     <tr>
