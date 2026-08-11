@@ -22,10 +22,10 @@
 SAME NAME HELLO??!SORRY IF UR NONSHARING TWT"..!.
 </p>
 
-<img width="140" height="54" alt="4" src="https://github.com/user-attachments/assets/5cc87be3-cc96-403d-ab3d-9d1290a17e53" />
-<img width="140" height="54" alt="3" src="https://github.com/user-attachments/assets/61c06a1e-1a58-4878-9204-f76c2f2f0ecc" />
-<img width="140" height="54" alt="2" src="https://github.com/user-attachments/assets/9d44b703-1f81-4700-a406-b2b84812b119" />
-<img width="140" height="54" alt="1" src="https://github.com/user-attachments/assets/ec355783-b1f5-4b4a-8664-05245dc0571b" />
+<img width="199" height="54" alt="4" src="https://github.com/user-attachments/assets/5cc87be3-cc96-403d-ab3d-9d1290a17e53" />
+<img width="199" height="54" alt="3" src="https://github.com/user-attachments/assets/61c06a1e-1a58-4878-9204-f76c2f2f0ecc" />
+<img width="199" height="54" alt="2" src="https://github.com/user-attachments/assets/9d44b703-1f81-4700-a406-b2b84812b119" />
+<img width="199" height="54" alt="1" src="https://github.com/user-attachments/assets/ec355783-b1f5-4b4a-8664-05245dc0571b" />
 
 <img width="430" height="30" alt="c" src="https://github.com/user-attachments/assets/67846ef3-6821-47c8-b1f7-6b39d4df3825" /> <img width="430" height="30" alt="0" src="https://github.com/user-attachments/assets/ab7e27a0-fab1-401d-a94f-7569cb8d1a2e" />
 
