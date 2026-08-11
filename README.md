@@ -20,7 +20,7 @@
 
 <p align="right">
 
-<img width="350" height="19" alt="c" src="https://github.com/user-attachments/assets/67846ef3-6821-47c8-b1f7-6b39d4df3825" /> 　 SAME NAME HELLO??!SORRY IF UR NONSHARING
+<img width="350" height="19" alt="c" src="https://github.com/user-attachments/assets/67846ef3-6821-47c8-b1f7-6b39d4df3825" /> 　 SAME NAME HELLO??!SORRY IF UR NONSHARING TWT"..!.
 </p>
 
 
