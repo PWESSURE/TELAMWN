@@ -93,6 +93,5 @@ SAME NAME HELLO??!SORRY IF UR NONSHARING TWT"..!.
 <img width="99" height="56" alt="b" src="https://github.com/user-attachments/assets/13621ec0-6e1f-45ef-8d70-932919f776b8" />
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/4ad47fe8-1fb8-4ea5-811a-10a56058d6ed" />
 <img width="99" height="56" alt="x" src="https://github.com/user-attachments/assets/4670f886-4707-49a6-8b71-3f0ebdf7c47c" /> 
-<img width="99" height="56" alt="x" src="https://github.com/user-attachments/assets/9ac4d9d2-672e-45dd-b5d5-cbbce44f5a6d" /> <br>
-
+<img width="99" height="56" alt="x" src="https://github.com/user-attachments/assets/9ac4d9d2-672e-45dd-b5d5-cbbce44f5a6d" />
 <img width="99" height="56" alt="z" src="https://github.com/user-attachments/assets/23451cd3-decb-45fe-a2cc-8fd9431700f3" /> mama y papa :3
