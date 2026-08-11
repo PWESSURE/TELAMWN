@@ -94,4 +94,14 @@ SAME NAME HELLO??!SORRY IF UR NONSHARING TWT"..!.
 <img width="99" height="56" alt="a" src="https://github.com/user-attachments/assets/4ad47fe8-1fb8-4ea5-811a-10a56058d6ed" />
 <img width="99" height="56" alt="x" src="https://github.com/user-attachments/assets/4670f886-4707-49a6-8b71-3f0ebdf7c47c" /> 
 <img width="99" height="56" alt="x" src="https://github.com/user-attachments/assets/9ac4d9d2-672e-45dd-b5d5-cbbce44f5a6d" />
-<img width="99" height="56" alt="z" src="https://github.com/user-attachments/assets/23451cd3-decb-45fe-a2cc-8fd9431700f3" /> mama y papa :3
+<img width="99" height="56" alt="z" src="https://github.com/user-attachments/assets/23451cd3-decb-45fe-a2cc-8fd9431700f3" /> mama y papa :3 <br>
+
+
+<img width="127" height="20" alt="a" src="https://github.com/user-attachments/assets/dff880e7-0f35-4909-a5ad-91a36ba35ba3" />
+<img width="99" height="18" alt="j" src="https://github.com/user-attachments/assets/f092fbca-61cb-4f0c-8ca4-77475d963efa" />
+<img width="63" height="18" alt="f" src="https://github.com/user-attachments/assets/82c43994-4733-4cc1-8f96-cc036bd61b51" />
+<img width="63" height="18" alt="e" src="https://github.com/user-attachments/assets/972833b8-730a-4a13-a27c-4f0ccaa0d852" />
+<img width="59" height="18" alt="d" src="https://github.com/user-attachments/assets/04814ea6-5390-47f4-94a9-edfab7e6965f" />
+<img width="56" height="18" alt="c" src="https://github.com/user-attachments/assets/f7db5e22-7b4e-4f32-ba85-70ea973a24ab" />
+<img width="77" height="18" alt="b" src="https://github.com/user-attachments/assets/8718cd77-ae7d-452c-a3db-03ab3f961f58" />
+
