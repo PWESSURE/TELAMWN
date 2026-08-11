@@ -27,7 +27,7 @@ SAME NAME HELLO??!SORRY IF UR NONSHARING TWT"..!.
 <img width="199" height="54" alt="2" src="https://github.com/user-attachments/assets/9d44b703-1f81-4700-a406-b2b84812b119" />
 <img width="199" height="54" alt="1" src="https://github.com/user-attachments/assets/ec355783-b1f5-4b4a-8664-05245dc0571b" />
 
-<img width="430" height="30" alt="c" src="https://github.com/user-attachments/assets/67846ef3-6821-47c8-b1f7-6b39d4df3825" /> <img width="430" height="30" alt="0" src="https://github.com/user-attachments/assets/ab7e27a0-fab1-401d-a94f-7569cb8d1a2e" />
+<img width="400" height="30" alt="c" src="https://github.com/user-attachments/assets/67846ef3-6821-47c8-b1f7-6b39d4df3825" /> <img width="400" height="30" alt="0" src="https://github.com/user-attachments/assets/ab7e27a0-fab1-401d-a94f-7569cb8d1a2e" />
 
 <img width="150" height="20" alt="10" src="https://github.com/user-attachments/assets/bc77f97d-2677-457b-ad7f-ef45ad291d24" />
 <img width="150" height="20" alt="9" src="https://github.com/user-attachments/assets/c4a912c4-76a3-4178-9633-a7ba7e0613b5" />
