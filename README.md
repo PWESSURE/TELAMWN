@@ -106,3 +106,7 @@ SAME NAME HELLO??!SORRY IF UR NONSHARING TWT"..!.
 <img width="77" height="18" alt="b" src="https://github.com/user-attachments/assets/8718cd77-ae7d-452c-a3db-03ab3f961f58" />
 
 <img width="3462" height="2116" alt="1" src="https://github.com/user-attachments/assets/2435196c-3cf7-486f-a804-84ac1706862c" />
+<img width="3462" height="2116" alt="1" src="https://github.com/user-attachments/assets/781110df-d8df-43ce-93d5-0a80d9bf2cb8" />
+<img width="4480" height="2232" alt="1724902399_7041939546_1786723890067" src="https://github.com/user-attachments/assets/f67dfef1-491b-40c9-b87c-6228482ffb86" />
+<img width="4480" height="2232" alt="1724902399_7041939546_1786721134307" src="https://github.com/user-attachments/assets/3945f5bf-c1d0-439d-96eb-2b86ea68f8bc" />
+
