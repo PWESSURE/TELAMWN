@@ -105,3 +105,4 @@ SAME NAME HELLO??!SORRY IF UR NONSHARING TWT"..!.
 <img width="56" height="18" alt="c" src="https://github.com/user-attachments/assets/f7db5e22-7b4e-4f32-ba85-70ea973a24ab" />
 <img width="77" height="18" alt="b" src="https://github.com/user-attachments/assets/8718cd77-ae7d-452c-a3db-03ab3f961f58" />
 
+<img width="3462" height="2116" alt="1" src="https://github.com/user-attachments/assets/2435196c-3cf7-486f-a804-84ac1706862c" />
